@@ -1,3 +1,3 @@
 <p align="center">
-  <img src="https://i.imghippo.com/files/Owp7121wCM.png"/>
+  <img src="https://i.imghippo.com/files/qAM6304bK.png"/>
 </p>
